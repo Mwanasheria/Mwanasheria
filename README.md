@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Mwanasheria
-- 👀 I’m interested in your project
-- 🌱 I’m currently learning software development and ict solution.
+- 👀 I’m interested in software development and ict solution
+- 🌱 I’m currently working in software development by job(part-time) contract.
 - 💞️ I’m looking to collaborate on your project.
 - 📫 How to reach me - my email silvestersilvester36362@gmail.com
 - 😄 Pronouns: mwanasheria
